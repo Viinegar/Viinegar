@@ -4,7 +4,7 @@ Hey, I'm Stu/Vinegar
 
 If you like classic horror marry me rn. 
 
-16 *!!*, 
+16 *!!*, Basic DNI & don't be weird
 
 
 <!---
