@@ -2,7 +2,7 @@ Hey, I'm Stu/Vinegar
 
 [here](https://en.pronouns.page/@Vinegr) is my pronouns page!
 
-If you like classic horror marry me rn. 
+If you like classic horror movies marry me rn. 
 
 16 *!!*, Basic DNI & don't be weird
 
