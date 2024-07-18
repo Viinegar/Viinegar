@@ -6,8 +6,6 @@ If you like horror movies marry me rn.
 
 17 *!!*, don't be weird
 
-[pssst sign my guestbook](https://stu.123guestbook.com/)
-
 <!---
 Viinegar/Viinegar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
