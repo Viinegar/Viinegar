@@ -1,8 +1,4 @@
-Hey, I'm Stu/Vinegar
-
-[here](https://en.pronouns.page/@Vinegr) is my pronouns page!
-
-If you like horror movies marry me rn. 
+Hey, I'm Vinegar
 18 he/it
 
 <!---
