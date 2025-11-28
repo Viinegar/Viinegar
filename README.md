@@ -3,8 +3,7 @@ Hey, I'm Stu/Vinegar
 [here](https://en.pronouns.page/@Vinegr) is my pronouns page!
 
 If you like horror movies marry me rn. 
-
-17 *!!*, don't be weird
+18 he/it
 
 <!---
 Viinegar/Viinegar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
